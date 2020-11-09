@@ -1,4 +1,3 @@
-Discord : https://discord.gg/QW4TDJP
 
 ![fivem](https://i.imgur.com/KmhcNLi.jpg)
 
